@@ -2,7 +2,7 @@
 
 ### Hi there / Olá ❣️
 
-🎓 Analise e Desenvolvimento de Sistemas
+🎓 Analise e Desenvolvimento de Sistemas<br>
 📚 No tempo livre adoro aprender coisas novas 
 
 
