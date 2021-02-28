@@ -2,6 +2,6 @@
 
 ### Hi there / Olá ❣️
 
-🎓 Cursando : Analise e Desenvolvimento de Sistemas<br>
+🎓 Cursando : Análise e Desenvolvimento de Sistemas<br>
 📚 No tempo livre adoro aprender coisas novas 
 
