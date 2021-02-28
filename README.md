@@ -1,4 +1,8 @@
-<img align="right" src="https://github.com/JEZIGA01/JEZIGA01/blob/master/1414.png" alt="Illustration" width=350px height=465px/>
+<img align="right" src="https://github.com/JEZIGA01/JEZIGA01/blob/master/1414.png" alt="Illustration" width=200px height=365px/>
 
-### Hi there ❣️
+### Hi there / Olá ❣️
+
+🎓 Analise e Desenvolvimento de Sistemas
+📚 No tempo livre adoro aprender coisas novas 
+
 
