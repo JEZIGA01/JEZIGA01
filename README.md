@@ -2,7 +2,7 @@
 
 ### Hi there / Olá ❣️
 
-🎓 Graduanda : Analise e Desenvolvimento de Sistemas<br>
+🎓 Cursando : Analise e Desenvolvimento de Sistemas<br>
 📚 No tempo livre adoro aprender coisas novas 
 
 
