@@ -3,6 +3,6 @@
 ### Hi there / Olá ❣️
 
 🎓 Cursando : Análise e Desenvolvimento de Sistemas<br>
-📚 Tempo livre: adoro aprender coisas novas 
+📚 Tempo livre: adoro aprender coisas novas <br>
 🎮 Gosto de jogar Liga das Lendas xd (lol)
 
