@@ -4,4 +4,5 @@
 
 🎓 Cursando : Análise e Desenvolvimento de Sistemas<br>
 📚 Tempo livre: adoro aprender coisas novas 
+🎮 Gosto de jogar Liga das Lendas xd (lol)
 
