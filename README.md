@@ -1,4 +1,4 @@
-<img align="right" src="https://github.com/JEZIGA01/JEZIGA01/blob/master/1414.png" alt="Illustration" width=200px height=250px/>
+<img align="right" src="https://3.bp.blogspot.com/-KMO_pwqC5jQ/XIDqp0blNZI/AAAAAAAkv2o/cv-UEVAXSjsBh4ZdsHfMoOBF2sH_qz9nQCLcBGAs/s1600/AW3646890_02.gif" alt="Illustration" width=200px height=200px/>
 
 ### Hi there / Olá ❣️
 
