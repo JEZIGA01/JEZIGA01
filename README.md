@@ -3,5 +3,5 @@
 ### Hi there / Olá ❣️
 
 🎓 Cursando : Análise e Desenvolvimento de Sistemas<br>
-📚 Tempo livre: adoro aprender coisas novas <br>
+📚 Tempo livre: Adoro aprender coisas novas <br>
 
